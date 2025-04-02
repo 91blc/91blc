@@ -1,4 +1,4 @@
-- 👋 91爆料最新登陆地址：https://bgw04.com（免翻墙）
+- 👋 91爆料最新登陆地址：https://91bl4.com（免翻墙）
 - 👀 官方Telegram频道：https://t.me/chiguatt_new
 - 🌱 商务TG：https://t.me/wsl952
 - 💞️ 91爆料永久域名：https://91blc.com
